@@ -1,3 +1,3 @@
 # CsDoge
 
-![Certificate_CsDoge](https://user-images.githubusercontent.com/81981737/157891356-38f13029-22d0-48fd-b3b1-03154187f77d.jpg)
+![constellationdoge](https://user-images.githubusercontent.com/121312707/235407930-74463874-1f75-498f-9845-ad925ace6c2d.png)
